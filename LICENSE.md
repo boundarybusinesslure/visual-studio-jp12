@@ -1,4 +1,4 @@
-# 
+# rare Visual Studio para PC plugins é o melhor Visual Studio para PC plugins com gerenciamento de contêineres e monitoramento. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
